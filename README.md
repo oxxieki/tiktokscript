@@ -1,0 +1,2 @@
+# tiktokscript
+ayo whaaa 
